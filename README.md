@@ -1,4 +1,4 @@
-- 💞️ [Strawpage link!!!](https://maggotfreak2hiive.straw.page)
+- 💞️ [Strawpage link!!! (site does not work on mobile!!! sorree) ](https://maggotfreak2hiive.straw.page)
 
 <!---
 Maggot-Freak/Maggot-Freak is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
