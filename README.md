@@ -4,4 +4,4 @@
 
 [- My other, even more unfinished strawpage!](https://h00b33w00d.straw.page) 
 - 16+ to interact on safe server
-- 18+ to interact on 18+ server (obviously, I'm there to talk to other adults. Minors can fuck off! )
+- 18+ to interact on 18+ server (obviously, I'm there to talk to other adults. Minors can fuck off. )
