@@ -2,3 +2,5 @@
 
 - 16+ to interact on safe server
 - 18+ to interact on 18+ server (obviously)
+- Very unlikely to actually respond. I struggle a lot with anxiety and talking to people is often impossible.
+- Mostly just here to create ponies and sit around.
