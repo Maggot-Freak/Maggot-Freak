@@ -8,4 +8,4 @@
 - Mostly just here to create ponies and sit around.
 - Very tired misanthrope. People on ponytown keep proving me right.
 
-[honk](https://www.youtube.com/watch?v=boAxkYmO30c&list=OLAK5uy_lwH674wEVqNM6Jm8mTqmXbuQ_ky0_w-Hc&index=7)
+[honk](https://www.youtube.com/watch?v=boAxkYmO30c)
