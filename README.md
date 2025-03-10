@@ -1,6 +1,6 @@
 ![im not an animating yippeee](https://github.com/user-attachments/assets/45ed8bf8-9bae-4811-91a5-9ceabb2eadad)
 
-# ***Before you interact / Info :o3c ***
+# ***Before you interact / Info :o3c***
 
 -  **16+** to interact on safe server. I hide anyone I find annoying (mostly people who are being assholes)
 - **18+** to interact on 18+ server (obviously)
