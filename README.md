@@ -3,7 +3,7 @@
 
 # ***Before you interact / Info***
 
--  ***Very unlikely to actually respond. I have VERY bad (social) anxiety. Talking to people is often impossible for me. Please don't take it personally.***
+-  ***❗❗❗Very unlikely to actually respond. I have VERY bad (social) anxiety. Talking to people is often impossible for me. Please don't take it personally.❗❗❗***
   
 -  ***16+*** to interact on safe server. I hide anyone I find annoying (mostly people who are being assholes)
 - ***18+*** to interact on 18+ server (obviously)
