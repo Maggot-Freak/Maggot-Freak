@@ -22,12 +22,14 @@
 - ***MLP***
 - Great God Grove
 - Changed
+- ***Maggots*** and Ticks!!! :oD 
 - ***Fantasy Life***
 - ~~Homosuck~~ ***Homestuck***
 - Smile For Me
 - Endacopia
 - Stardew Valley
 - Fallout
+- Ticks (1993)
 - ***Horror Movies / Slashers***
 - Terraria
 - Starbound ~~sorry~~
