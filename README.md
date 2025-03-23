@@ -41,6 +41,7 @@
 - ***The Paper Chase***
 - ***John Congleton and the Nighty Nite***
 - Creature Feature
+- Rufus Rex
 - Pent Up Pup
 - Ramshackle Glory
 - Qbomb
