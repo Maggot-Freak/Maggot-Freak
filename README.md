@@ -37,7 +37,7 @@
 # ***MUSIC I LIEK :o3c***
 - ***4lung***
 - Operation Sodasteal
-- ***Harley Poe <3***
+- ***Harley Poe <3*** ***(other Harley Poe fans, do not talk to me about Harley Poe! Please!)***
 - ***The Paper Chase***
 - ***John Congleton and the Nighty Nite***
 - Creature Feature
