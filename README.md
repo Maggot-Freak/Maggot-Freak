@@ -11,7 +11,7 @@
 - ***18+*** to interact on 18+ server (obviously)
 -  I don't care for DNIs, I just block and hide!
 - Selfshipper. Ponies of my f/os usually have 'F/O' in their name.
-- ***P.L.U.R***, and I fucking mean it. ***Accept others for who they are*** and ***be nice to people.*** I don't want people who have done wrong to die, I want them to improve and become better.
+- ***P.L.U.R***, and I fucking mean it. ***Be nice to people.*** 
 -  Mostly just here to create ponies and sit around.
 -  DirkBro <3
   
