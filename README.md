@@ -3,6 +3,7 @@
 ![slyheartseve](https://github.com/user-attachments/assets/dc84604a-78a1-4a62-8c64-2cc3930f4c77)
 ![RATCEST BIG](https://github.com/user-attachments/assets/e907edb9-3e72-4d6a-9853-1de64917cb4b)
 
+__Extra little note, anyone can use these... if you want to :o3__
 
 # ***Before you interact / Info***
 
