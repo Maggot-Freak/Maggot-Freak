@@ -1,6 +1,6 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qj6vpecq74hhdjiwzxlts7ma7q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=440a7f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-![stridercest BLINKIE](https://github.com/user-attachments/assets/a930ddb8-47f4-499b-8f98-a99b96ca3f66)
+![slyheartseve](https://github.com/user-attachments/assets/dc84604a-78a1-4a62-8c64-2cc3930f4c77)
 
 
 # ***Before you interact / Info***
@@ -34,6 +34,8 @@
 - Terraria
 - Starbound ~~sorry~~
 
+![stridercest BLINKIE](https://github.com/user-attachments/assets/a930ddb8-47f4-499b-8f98-a99b96ca3f66)
+
 # ***MUSIC I LIEK :o3c***
 - ***4lung***
 - Operation Sodasteal
@@ -50,7 +52,7 @@
   
 ![MAGGOT GROOVE](https://github.com/user-attachments/assets/4c18ea2f-c801-495e-88e3-51b1f3f1c12d)
 
-![blinkiesCafe-8A-export](https://github.com/user-attachments/assets/aef25014-7b64-43b5-8391-885b01a12079)
+# **Goodbye :o3**
 
 ![bookywormy](https://github.com/user-attachments/assets/87403d0b-7fdc-42cb-8466-69d522935fd4)
 
