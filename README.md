@@ -17,7 +17,6 @@ __Extra little note, these are free to use! Anyone can use them for anything the
 - Selfshipper. Ponies of my f/os usually have 'F/O' in their name.
 - ***P.L.U.R***, and I fucking mean it. ***Be nice to people.*** 
 -  Mostly just here to create ponies and sit around.
--  DirkBro <3
   
 [honk](https://www.youtube.com/watch?v=boAxkYmO30c)
 
