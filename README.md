@@ -64,4 +64,5 @@ __Extra little note, these are free to use! Anyone can use them for anything the
 ![RATCEST SMALL](https://github.com/user-attachments/assets/c5b1f1ff-87e2-4db3-ae02-6bef7c44b8f7)
 ![slyheartsevesmall](https://github.com/user-attachments/assets/13c64dfd-d883-4b4a-96e7-07be421d0021)
 ![FLIMFLAMSMALLf](https://github.com/user-attachments/assets/072a32cd-971a-4418-9f05-81010ae4e0d8)
+![CREAMDOOM SMALL](https://github.com/user-attachments/assets/90fd7d29-0d94-4126-94ca-82208682853b)
 
