@@ -3,7 +3,7 @@
 ![slyheartseve](https://github.com/user-attachments/assets/dc84604a-78a1-4a62-8c64-2cc3930f4c77)
 ![RATCEST BIG](https://github.com/user-attachments/assets/e907edb9-3e72-4d6a-9853-1de64917cb4b)
 
-__Extra little note, anyone can use these... if you want to :o3__
+__Extra little note, these are free to use! Anyone can use them for anything they want <3 credit is not needed but I appreciate it if it's possible! Small versions at the bottom of the page, incase you'd prefer that :o3 (though they're 450x60 rather than the usual blinkie 150x20, sorry about that!)__
 
 # ***Before you interact / Info***
 
@@ -57,4 +57,8 @@ __Extra little note, anyone can use these... if you want to :o3__
 # **Goodbye :o3**
 
 ![bookywormy](https://github.com/user-attachments/assets/87403d0b-7fdc-42cb-8466-69d522935fd4)
+
+
+![RATCEST SMALL](https://github.com/user-attachments/assets/c5b1f1ff-87e2-4db3-ae02-6bef7c44b8f7)
+![slyheartsevesmall](https://github.com/user-attachments/assets/13c64dfd-d883-4b4a-96e7-07be421d0021)
 
