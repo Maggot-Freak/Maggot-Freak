@@ -18,8 +18,11 @@ __Extra little note, these are free to use! Anyone can use them for anything the
 - Selfshipper. Ponies of my f/os usually have 'F/O' in their name.
 - ***P.L.U.R***, and I fucking mean it. ***Be nice to people.*** 
 -  Mostly just here to create ponies and sit around.
+
+[F/O LIST !!!](https://docs.google.com/document/d/1z87dd5EAqhLX5DDW1LxPfYMSmuht_S1sNXZHvsuu6Oc/edit?usp=sharing)
+[SHIP LIST !!! ](https://docs.google.com/document/d/1X8n6leZPZJDl_YBldso4F8hDwOe1K7fx7RgFcWydwVs/edit?usp=sharing)
   
-[honk](https://www.youtube.com/watch?v=boAxkYmO30c)
+
 
 ![FLIMFLAMBIGf](https://github.com/user-attachments/assets/fa4962b5-0b3c-4bd1-ad0d-a3e2f6f918f2)
 # ***INTERESTS / FANDOMS***
@@ -56,7 +59,7 @@ __Extra little note, these are free to use! Anyone can use them for anything the
   
 ![MAGGOT GROOVE](https://github.com/user-attachments/assets/4c18ea2f-c801-495e-88e3-51b1f3f1c12d)
 ![CREAMDOOM BIG](https://github.com/user-attachments/assets/c3cff65a-5da5-4dc6-b415-be00406ae027)
-
+[honk](https://www.youtube.com/watch?v=boAxkYmO30c)
 # **Goodbye :o3**
 
 ![bookywormy](https://github.com/user-attachments/assets/87403d0b-7fdc-42cb-8466-69d522935fd4)
