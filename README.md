@@ -14,7 +14,7 @@ __Extra little note, these are free to use! Anyone can use them for anything the
   
 -  ***16+*** to interact on safe server. I hide anyone I find annoying (mostly people who are being assholes, though sometimes just people who seem unpleasant.)
 - ***18+*** to interact on 18+ server (obviously)
--  I don't care for DNIs, though I will say that anti-paras can fuck off. You hate me and I hate you.
+-  I don't care for DNIs, though I will say that anti-paras probably don't want to stick around... Because I love paras <3
 -  I'm anti-contact, for the record. Just very much against judging people for an attraction they cannot control.
 - Selfshipper. Ponies of my f/os usually have 'F/O' in their name.
 - ***P.L.U.R***, and I fucking mean it. ***Be nice to people.*** 
