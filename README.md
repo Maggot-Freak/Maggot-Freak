@@ -12,7 +12,7 @@ __Extra little note, these are free to use! Anyone can use them for anything the
 
 -  ***❗❗❗Very unlikely to actually respond. I have VERY bad (social) anxiety. Talking to people is often impossible for me. Please don't take it personally.❗❗❗***
   
--  ***16+*** to interact on safe server. I hide anyone I find annoying (mostly people who are being assholes)
+-  ***16+*** to interact on safe server. I hide anyone I find annoying (mostly people who are being assholes, though sometimes just people who seem unpleasant.)
 - ***18+*** to interact on 18+ server (obviously)
 -  I don't care for DNIs, I just block and hide!
 - Selfshipper. Ponies of my f/os usually have 'F/O' in their name.
