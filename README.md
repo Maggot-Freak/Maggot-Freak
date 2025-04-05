@@ -26,7 +26,7 @@ __Extra little note, these are free to use! Anyone can use them for anything the
 
 
 ![FLIMFLAMBIGf](https://github.com/user-attachments/assets/fa4962b5-0b3c-4bd1-ad0d-a3e2f6f918f2)
-# ***INTERESTS / FANDOMS***
+# ***INTERESTS / FANDOMS*** (most significant interests in bold)
 - ***MLP***
 - Great God Grove
 - Changed
@@ -44,10 +44,10 @@ __Extra little note, these are free to use! Anyone can use them for anything the
 ![NORMEVE BIG](https://github.com/user-attachments/assets/c161f8a6-cb88-4dd2-85fe-35c25683b091)
 
 
-# ***MUSIC I LIEK :o3c***
+# ***MUSIC I LIEK :o3c*** (most significant interests in bold)
 - ***4lung***
 - Operation Sodasteal
-- ***Harley Poe <3*** 
+- ***Harley Poe <3*** (I love Harley Poe!!!!!! But never talk to me about it I will die.)
 - ***The Paper Chase***
 - ***John Congleton and the Nighty Nite***
 - Creature Feature
