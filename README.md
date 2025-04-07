@@ -63,7 +63,8 @@ __Extra little note, these are free to use! Anyone can use them for anything the
 [honk](https://www.youtube.com/watch?v=boAxkYmO30c)
 # **Goodbye :o3**
 
-![bookywormy](https://github.com/user-attachments/assets/87403d0b-7fdc-42cb-8466-69d522935fd4)
+![RATTYCEST](https://github.com/user-attachments/assets/62f3bded-8302-4e98-971c-5ac34379274e)
+
 
 ![stridercest BLINKIE](https://github.com/user-attachments/assets/a930ddb8-47f4-499b-8f98-a99b96ca3f66)
 ![RATCEST SMALL](https://github.com/user-attachments/assets/c5b1f1ff-87e2-4db3-ae02-6bef7c44b8f7)
