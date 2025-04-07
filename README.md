@@ -45,12 +45,12 @@ __Extra little note, these are free to use! Anyone can use them for anything the
 
 
 # ***MUSIC I LIEK :o3c*** (most significant interests in bold)
-- ***4lung***
-- Operation Sodasteal
 - ***Harley Poe <3*** (I love Harley Poe!!!!!! But never talk to me about it I will die.)
+- ***4lung***
 - ***The Paper Chase***
 - ***John Congleton and the Nighty Nite***
 - Creature Feature
+- Operation Sodasteal
 - Rufus Rex
 - Pent Up Pup
 - Ramshackle Glory
