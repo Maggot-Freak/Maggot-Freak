@@ -2,26 +2,24 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qj6vpecq74hhdjiwzxlts7ma7q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=440a7f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ![slyheartseve](https://github.com/user-attachments/assets/dc84604a-78a1-4a62-8c64-2cc3930f4c77)
-![RATCEST BIG](https://github.com/user-attachments/assets/e907edb9-3e72-4d6a-9853-1de64917cb4b)
-
-
-
-__Extra little note, these are free to use! Anyone can use them for anything they want <3 credit is not needed but I appreciate it if it's possible! :oD Small versions at the bottom of the page, incase you'd prefer that :o3 (though they're 450x60 rather than the usual blinkie 150x20, sorry about that!)__
 
 # ***Before you interact / Info***
 
 -  ***❗❗❗Very unlikely to actually respond. I have VERY bad (social) anxiety. Talking to people is often impossible for me. Please don't take it personally.❗❗❗***
-  
--  ***16+*** to interact on safe server. I hide anyone I find annoying (mostly people who are being assholes, though sometimes just people who seem unpleasant.)
+- Weird freaky freak. Will NOT respond unless I'm somewhat certain that you're fine with that. 
+-  ***16+*** to interact on safe server. I hide anyone I find annoying or just generally unpleasant.
 - ***18+*** to interact on 18+ server (obviously)
--  I don't care for DNIs, though I will say that anti-paras probably don't want to stick around.
--  I'm anti-contact, for the record. Just very much against judging people for an attraction they cannot control.
+-  I don't care for DNIs, though I will say that anti-paras probably don't want to stick around.  I'm anti-contact, for the record.
 - Selfshipper. Ponies of my f/os usually have 'F/O' in their name.
 - ***P.L.U.R***, and I fucking mean it. ***Be nice to people.*** 
 -  Mostly just here to create ponies and sit around.
 
-[F/O LIST !!!](https://docs.google.com/document/d/1z87dd5EAqhLX5DDW1LxPfYMSmuht_S1sNXZHvsuu6Oc/edit?usp=sharing)
-[SHIP LIST !!! ](https://docs.google.com/document/d/1X8n6leZPZJDl_YBldso4F8hDwOe1K7fx7RgFcWydwVs/edit?usp=sharing)
+![RATCEST BIG](https://github.com/user-attachments/assets/e907edb9-3e72-4d6a-9853-1de64917cb4b)
+
+__Extra little note, these are free to use! Anyone can use them for anything they want <3 credit is not needed but I appreciate it if it's possible! :oD Small versions at the bottom of the page, incase you'd prefer that :o3 (though they're 450x60 rather than the usual blinkie 150x20, sorry about that!)__
+
+***[F/O LIST !!!](https://docs.google.com/document/d/1z87dd5EAqhLX5DDW1LxPfYMSmuht_S1sNXZHvsuu6Oc/edit?usp=sharing)***
+***[SHIP LIST !!! ](https://docs.google.com/document/d/1X8n6leZPZJDl_YBldso4F8hDwOe1K7fx7RgFcWydwVs/edit?usp=sharing)***
   
 
 
