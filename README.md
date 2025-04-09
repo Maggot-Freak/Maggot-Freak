@@ -6,13 +6,11 @@
 # ***Before you interact / Info***
 
 -  ***❗❗❗Very unlikely to actually respond. I have VERY bad (social) anxiety. Talking to people is often impossible for me. Please don't take it personally.❗❗❗***
-- Weird freaky freak. Will NOT respond unless I'm somewhat certain that you're fine with that. 
+- **Weird freaky freak**. Will NOT respond unless I'm somewhat certain that you're fine with that. 
 -  ***16+*** to interact on safe server. I hide anyone I find annoying or just generally unpleasant.
-- ***18+*** to interact on 18+ server (obviously)
--  I don't care for DNIs, though I will say that anti-paras probably don't want to stick around.  I'm anti-contact, for the record.
-- Selfshipper. Ponies of my f/os usually have 'F/O' in their name.
+-  I don't care for DNIs... ***though I will say that anti-paras probably don't want to stick around.***  I'm ***anti-contact***, for the record.
+- **Selfshipper**. Ponies of my f/os usually have 'F/O' in their name.
 - ***P.L.U.R***, and I fucking mean it. ***Be nice to people.*** 
--  Mostly just here to create ponies and sit around.
 
 ![RATCEST BIG](https://github.com/user-attachments/assets/e907edb9-3e72-4d6a-9853-1de64917cb4b)
 
