@@ -9,7 +9,7 @@
 - **Weird freaky freak**. Will NOT respond unless I'm somewhat certain that you're fine with that. 
 -  ***16+*** to interact on safe server. I hide anyone I find annoying or just generally unpleasant.
 -  I don't care for DNIs... ***though I will say that anti-paras probably don't want to stick around.***  I'm ***anti-contact***, for the record.
-- **Selfshipper**. Ponies of my f/os usually have 'F/O' in their name.
+- **Non-Sharing Selfshipper**.
 - ***P.L.U.R***, and I fucking mean it. ***Be nice to people.***
 - **["He hates bigots, he hates busybodies. He hates bullies, he hates little snotties. He hates the common world view, he hates me and he hates you."](https://youtu.be/3Kgxn-mk5ik?si=2pUo23clioBu4-BJ)**
 
