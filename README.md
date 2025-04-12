@@ -42,7 +42,7 @@ __Extra little note, these are free to use! Anyone can use them for anything the
 
 
 # ***MUSIC I LIEK :o3c*** (most significant interests in bold)
-- ***Harley Poe <3*** (I love Harley Poe!!!!!! But never talk to me about it I will die.)
+- ***Harley Poe <3*** (I love Harley Poe!!!!!! But never talk to me about it I will die. Harley Poe fans DNI)
 - ***4lung***
 - ***The Paper Chase***
 - ***John Congleton and the Nighty Nite***
