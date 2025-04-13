@@ -1,4 +1,4 @@
-# ***IF YOU'RE UNDER 16- !!! GO AWAY !!! SHOO!!! LEAVE!!!*
+# ***IF YOU'RE UNDER 16- !!! GO AWAY !!! SHOO!!! LEAVE!!!***
 
 ![13 april 2025](https://github.com/user-attachments/assets/21e05b60-fba5-423b-b2dc-1764c9392e54)
 
