@@ -1,4 +1,6 @@
 # ***IF YOU'RE UNDER 16- !!! GO AWAY !!! SHOO!!! LEAVE!!!***
+![13 april 2025](https://github.com/user-attachments/assets/7af81979-8f6e-4148-90f9-d76d248fdfdc)
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qj6vpecq74hhdjiwzxlts7ma7q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=440a7f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ![slyheartseve](https://github.com/user-attachments/assets/dc84604a-78a1-4a62-8c64-2cc3930f4c77)
