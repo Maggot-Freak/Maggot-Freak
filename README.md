@@ -62,7 +62,8 @@ __Extra little note, these are free to use! Anyone can use them for anything the
 [honk](https://www.youtube.com/watch?v=boAxkYmO30c)
 # **Goodbye :o3**
 
-![RATTYCEST](https://github.com/user-attachments/assets/62f3bded-8302-4e98-971c-5ac34379274e)
+![lil guyyyyy](https://github.com/user-attachments/assets/46e33561-e84a-4c42-b84e-8ed23917066c)
+
 
 
 ![stridercest BLINKIE](https://github.com/user-attachments/assets/a930ddb8-47f4-499b-8f98-a99b96ca3f66)
