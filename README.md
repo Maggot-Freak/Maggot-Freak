@@ -40,7 +40,6 @@ __Extra little note, these are free to use! Anyone can use them for anything the
 - ***Horror Movies / Slashers***
 - Terraria
 - Starbound ~~sorry~~
-![NORMEVE BIG](https://github.com/user-attachments/assets/c161f8a6-cb88-4dd2-85fe-35c25683b091)
 
 
 # ***MUSIC I LIEK :o3c*** (most significant interests in bold)
