@@ -63,7 +63,8 @@ __Extra little note, these are free to use! Anyone can use them for anything the
 # **Goodbye :o3**
 
 ![lil guyyyyy](https://github.com/user-attachments/assets/46e33561-e84a-4c42-b84e-8ed23917066c)
-
+feeling weird so im gonna ramble here <3
+Chucky is my favourite slasher of all time. Like, he's funny and sadistic and **HE'S SO ADORABLE. HE'S SO CUTE!!! LITTLE GUY!!!** Im love. He would absolutely kill me at the first opportunity because I'm annoying. but it's ok because I love him :o)
 
 
 ![stridercest BLINKIE](https://github.com/user-attachments/assets/a930ddb8-47f4-499b-8f98-a99b96ca3f66)
