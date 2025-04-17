@@ -14,8 +14,8 @@
 - **Non-Sharing Selfshipper**.
 - ***P.L.U.R***, and I fucking mean it. ***Be nice to people.***
 - **["He hates bigots, he hates busybodies. He hates bullies, he hates little snotties. He hates the common world view, he hates me and he hates you."](https://youtu.be/3Kgxn-mk5ik?si=2pUo23clioBu4-BJ)**
-
-![RATCEST BIG](https://github.com/user-attachments/assets/e907edb9-3e72-4d6a-9853-1de64917cb4b)
+- 
+![FLIMFLAMBIGf](https://github.com/user-attachments/assets/fa4962b5-0b3c-4bd1-ad0d-a3e2f6f918f2)
 
 __Extra little note, these are free to use! Anyone can use them for anything they want <3 credit is not needed but I appreciate it if it's possible! :oD Small versions at the bottom of the page, incase you'd prefer that :o3 (though they're 450x60 rather than the usual blinkie 150x20, sorry about that!)__
 
@@ -24,7 +24,7 @@ __Extra little note, these are free to use! Anyone can use them for anything the
   
 
 
-![FLIMFLAMBIGf](https://github.com/user-attachments/assets/fa4962b5-0b3c-4bd1-ad0d-a3e2f6f918f2)
+
 # ***INTERESTS / FANDOMS*** (most significant interests in bold)
 - ***MLP***
 - Great God Grove
@@ -41,6 +41,7 @@ __Extra little note, these are free to use! Anyone can use them for anything the
 - Terraria
 - Starbound ~~sorry~~
 
+![RATCEST BIG](https://github.com/user-attachments/assets/e907edb9-3e72-4d6a-9853-1de64917cb4b)
 
 # ***MUSIC I LIEK :o3c*** (most significant interests in bold)
 - ***Harley Poe <3*** (I love Harley Poe!!!!!! But never talk to me about it I will die. Harley Poe fans DNI)
