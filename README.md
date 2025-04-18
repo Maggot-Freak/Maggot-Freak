@@ -1,9 +1,7 @@
 # ***IF YOU'RE UNDER 16- !!! GO AWAY !!! SHOO!!! LEAVE!!!***
-![userbox](https://github.com/user-attachments/assets/7a28f179-aa3b-4796-b308-d8f1334063a6)
-
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qj6vpecq74hhdjiwzxlts7ma7q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=440a7f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
+## **["He hates bigots, he hates busybodies. He hates bullies, he hates little snotties. He hates the common world view, he hates me and he hates you."](https://youtu.be/3Kgxn-mk5ik?si=2pUo23clioBu4-BJ)**
 ![slyheartseve](https://github.com/user-attachments/assets/dc84604a-78a1-4a62-8c64-2cc3930f4c77)
 
 # ***Before you interact / Info***
@@ -12,9 +10,10 @@
 - **Weird freaky freak**. Will NOT respond unless I'm somewhat certain that you're fine with that. 
 -  ***16+*** to interact on safe server. I hide anyone I find annoying or just generally unpleasant.
 - **Non-Sharing Selfshipper**.
+-  ***Pro-Para***. ***Anti-contact for paras that would cause harm if acted upon / paras that involve anyone who can not or does not consent***. I see you "gross" paras, and I love you <3
+-  Do not try to involve me in any discourse, I'm just here to chill. Trying to argue or harass me is a waste of your time because I'm just going to hide you <3
 - ***P.L.U.R***, and I fucking mean it. ***Be nice to people.***
-- **["He hates bigots, he hates busybodies. He hates bullies, he hates little snotties. He hates the common world view, he hates me and he hates you."](https://youtu.be/3Kgxn-mk5ik?si=2pUo23clioBu4-BJ)**
-- 
+
 ![FLIMFLAMBIGf](https://github.com/user-attachments/assets/fa4962b5-0b3c-4bd1-ad0d-a3e2f6f918f2)
 
 __Extra little note, these are free to use! Anyone can use them for anything they want <3 credit is not needed but I appreciate it if it's possible! :oD Small versions at the bottom of the page, incase you'd prefer that :o3 (though they're 450x60 rather than the usual blinkie 150x20, sorry about that!)__
