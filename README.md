@@ -11,7 +11,7 @@
 -  ***16+*** to interact on safe server. I hide anyone I find annoying or just generally unpleasant.
 - **Non-Sharing Selfshipper**.
 -  ***Pro-Para***. ***Anti-contact for paras that would cause harm if acted upon / paras that involve anyone who can not or does not consent***. I see you "gross" paras, and I love you <3
--  Do not try to involve me in any discourse, I'm just here to chill. Trying to argue or harass me is a waste of your time because I'm just going to hide you <3
+-  Do not try to involve me in any discourse, I'm just here to chill. Trying to argue with or harass me is a waste of your time because I'm just going to hide you <3
 - ***P.L.U.R***, and I fucking mean it. ***Be nice to people.***
 
 ![FLIMFLAMBIGf](https://github.com/user-attachments/assets/fa4962b5-0b3c-4bd1-ad0d-a3e2f6f918f2)
