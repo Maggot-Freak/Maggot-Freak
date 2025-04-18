@@ -6,6 +6,7 @@
 
 # ***Before you interact / Info***
 
+## ***[LINK TO F/O LIST !!!](https://docs.google.com/document/d/1z87dd5EAqhLX5DDW1LxPfYMSmuht_S1sNXZHvsuu6Oc/edit?usp=sharing)***
 -  ***❗❗❗Very unlikely to actually respond. I have VERY bad (social) anxiety. Talking to people is often impossible for me. Please don't take it personally.❗❗❗***
 - **Weird freaky freak**. Will NOT respond unless I'm somewhat certain that you're fine with that. 
 -  ***16+*** to interact on safe server. I hide anyone I find annoying or just generally unpleasant.
@@ -13,30 +14,26 @@
 -  ***Pro-Para***. ***Anti-contact for paras that would cause harm if acted upon / paras that involve anyone who can not or does not consent***. I see you "gross" paras, and I love you <3
 -  Do not try to involve me in any discourse, I'm just here to chill. Trying to argue with or harass me is a waste of your time because I'm just going to hide you <3
 - ***P.L.U.R***, and I fucking mean it. ***Be nice to people.***
+## ***[LINK TO SHIP LIST !!! ](https://docs.google.com/document/d/1X8n6leZPZJDl_YBldso4F8hDwOe1K7fx7RgFcWydwVs/edit?usp=sharing)***
 
 ![FLIMFLAMBIGf](https://github.com/user-attachments/assets/fa4962b5-0b3c-4bd1-ad0d-a3e2f6f918f2)
-
-__Extra little note, these are free to use! Anyone can use them for anything they want <3 credit is not needed but I appreciate it if it's possible! :oD Small versions at the bottom of the page, incase you'd prefer that :o3 (though they're 450x60 rather than the usual blinkie 150x20, sorry about that!)__
-
-***[F/O LIST !!!](https://docs.google.com/document/d/1z87dd5EAqhLX5DDW1LxPfYMSmuht_S1sNXZHvsuu6Oc/edit?usp=sharing)***
-***[SHIP LIST !!! ](https://docs.google.com/document/d/1X8n6leZPZJDl_YBldso4F8hDwOe1K7fx7RgFcWydwVs/edit?usp=sharing)***
-  
 
 
 
 # ***INTERESTS / FANDOMS*** (most significant interests in bold)
 - ***MLP***
-- Great God Grove
-- Changed
 - ***Maggots*** and Ticks!!! :oD 
 - ***Fantasy Life***
 - ~~Homosuck~~ ***Homestuck***
+- **Ticks (1993)**
+- ***Child's Play (The entire movie series + Tv show)***
+- ***Horror Movies / Slashers***
+- ***Endacopia***
+- Great God Grove
 - Smile For Me
-- Endacopia
+- Changed
 - Stardew Valley
 - Fallout
-- Ticks (1993)
-- ***Horror Movies / Slashers***
 - Terraria
 - Starbound ~~sorry~~
 
@@ -44,7 +41,7 @@ __Extra little note, these are free to use! Anyone can use them for anything the
 
 # ***MUSIC I LIEK :o3c*** (most significant interests in bold)
 - ***Harley Poe <3*** (I love Harley Poe!!!!!! But never talk to me about it I will die. Harley Poe fans DNI)
-- ***4lung***
+- ***4lung*** (Other 4lung fans please interact!!!)
 - ***The Paper Chase***
 - ***John Congleton and the Nighty Nite***
 - Creature Feature
@@ -72,3 +69,4 @@ Chucky is my favourite slasher of all time. Like, he's funny and sadistic and **
 ![FLIMFLAMSMALLf](https://github.com/user-attachments/assets/072a32cd-971a-4418-9f05-81010ae4e0d8)
 ![CREAMDOOM SMALL](https://github.com/user-attachments/assets/90fd7d29-0d94-4126-94ca-82208682853b)
 ![NORMEVE SMALL](https://github.com/user-attachments/assets/27e1f38a-319f-4ca4-ac9c-4b6bb557b971)
+__Extra little note, these are free to use! Anyone can use them for anything they want <3 credit is not needed but I appreciate it if it's possible! :oD (though they're 450x60 rather than the usual blinkie 150x20, sorry about that!)__
