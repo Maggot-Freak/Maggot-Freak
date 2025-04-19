@@ -57,8 +57,9 @@
 ![CREAMDOOM BIG](https://github.com/user-attachments/assets/c3cff65a-5da5-4dc6-b415-be00406ae027)
 [honk](https://www.youtube.com/watch?v=boAxkYmO30c)
 # **Goodbye :o3**
+![easter tweat](https://github.com/user-attachments/assets/e4be9bb5-4a5c-45a8-b6c3-c817d6548032)
 
-![lil guyyyyy](https://github.com/user-attachments/assets/46e33561-e84a-4c42-b84e-8ed23917066c)
+
 feeling weird so im gonna ramble here <3
 Chucky is my favourite slasher of all time. Like, he's funny and sadistic and **HE'S SO ADORABLE. HE'S SO CUTE!!! LITTLE GUY!!!** Im love. He would absolutely kill me at the first opportunity because I'm annoying. but it's ok because I love him :o)
 
