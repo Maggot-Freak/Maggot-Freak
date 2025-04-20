@@ -1,4 +1,4 @@
-# ***IF YOU'RE UNDER 16- !!! GO AWAY !!! SHOO!!! LEAVE!!!***
+# ***IF YOU'RE UNDER 18- !!! GO AWAY !!! SHOO!!! LEAVE!!!***
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qj6vpecq74hhdjiwzxlts7ma7q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=440a7f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 ## **["He hates bigots, he hates busybodies. He hates bullies, he hates little snotties. He hates the common world view, he hates me and he hates you."](https://youtu.be/3Kgxn-mk5ik?si=2pUo23clioBu4-BJ)**
@@ -9,7 +9,7 @@
 ## ***[LINK TO F/O LIST !!!](https://docs.google.com/document/d/1z87dd5EAqhLX5DDW1LxPfYMSmuht_S1sNXZHvsuu6Oc/edit?usp=sharing)***
 -  ***❗❗❗Very unlikely to actually respond. I have VERY bad (social) anxiety. Talking to people is often impossible for me. Please don't take it personally.❗❗❗***
 - **Weird freaky freak**. Will NOT respond unless I'm somewhat certain that you're fine with that. 
--  ***16+*** to interact on safe server. I hide anyone I find annoying or just generally unpleasant.
+-  ***18+*** to interact on safe server. I hide anyone I find annoying or just generally unpleasant.
 - **Non-Sharing Selfshipper**.
 -  ***Pro-Para***. ***Anti-contact for paras that would cause harm if acted upon / paras that involve anyone who can not or does not consent***. I see you "gross" and "harmful" paras, and I love you <3
 -  Do not try to involve me in any discourse, I'm just here to chill. Trying to argue with or harass me is a waste of your time because I'm just going to hide you <3
