@@ -40,7 +40,8 @@
 - Terraria
 - Starbound ~~sorry~~
 
-![RATCEST BIG](https://github.com/user-attachments/assets/e907edb9-3e72-4d6a-9853-1de64917cb4b)
+![RATCEST BIG](https://github.com/user-attachments/assets/d2fae74d-6d03-44db-bff8-660ad46a327c)
+
 
 # ***MUSIC I LIEK :o3c*** (most significant interests in bold)
 - ***Harley Poe <3*** (I love Harley Poe!!!!!! But never talk to me about it I will die. Harley Poe fans DNI)
@@ -68,7 +69,7 @@ Chucky is my favourite slasher of all time. Like, he's funny and sadistic and **
 
 
 ![stridercest BLINKIE](https://github.com/user-attachments/assets/a930ddb8-47f4-499b-8f98-a99b96ca3f66)
-![RATCEST SMALL](https://github.com/user-attachments/assets/c5b1f1ff-87e2-4db3-ae02-6bef7c44b8f7)
+![RATCEST SMALL](https://github.com/user-attachments/assets/1675fafc-3732-4497-bc24-2d49767200bb)
 ![slyheartsevesmall](https://github.com/user-attachments/assets/13c64dfd-d883-4b4a-96e7-07be421d0021)
 ![FLIMFLAMSMALLf](https://github.com/user-attachments/assets/072a32cd-971a-4418-9f05-81010ae4e0d8)
 ![CREAMDOOM SMALL](https://github.com/user-attachments/assets/90fd7d29-0d94-4126-94ca-82208682853b)
