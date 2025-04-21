@@ -68,7 +68,6 @@ feeling weird so im gonna ramble here <3
 Chucky is my favourite slasher of all time. Like, he's funny and sadistic and **HE'S SO ADORABLE. HE'S SO CUTE!!! LITTLE GUY!!!** Im love. He would absolutely kill me at the first opportunity because I'm annoying. but it's ok because I love him :o)
 
 
-![stridercest BLINKIE](https://github.com/user-attachments/assets/a930ddb8-47f4-499b-8f98-a99b96ca3f66)
 ![RATCEST SMALL](https://github.com/user-attachments/assets/1675fafc-3732-4497-bc24-2d49767200bb)
 ![slyheartsevesmall](https://github.com/user-attachments/assets/13c64dfd-d883-4b4a-96e7-07be421d0021)
 ![FLIMFLAMSMALLf](https://github.com/user-attachments/assets/072a32cd-971a-4418-9f05-81010ae4e0d8)
