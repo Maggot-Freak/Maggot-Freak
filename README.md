@@ -33,6 +33,7 @@
 - ***Horror Movies / Slashers***
 - ***Endacopia***
 - Great God Grove
+- Sparklecare
 - Smile For Me
 - Changed
 - Stardew Valley
