@@ -1,4 +1,4 @@
-# ***IF YOU'RE UNDER 18- !!! GO AWAY !!! SHOO!!! LEAVE!!!***
+# ***18+ ONLY!!! MINORS GO AWAY!!!***
 
 ![im not an animating yippeee](https://github.com/user-attachments/assets/234f50d8-d5ca-404a-9d89-ae3f9a051e26)
 
