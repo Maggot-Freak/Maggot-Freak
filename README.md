@@ -3,7 +3,6 @@
 
 ***It's Wilson P. Higgsburys birthday!  Happy birthday Wilson <3***
 -
-~~<sub>it's also our birthday, i guess. but who gives a shit.</sub>~~
 
 # ***18+ ONLY!!! MINORS GO AWAY!!!***
 
