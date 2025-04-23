@@ -1,3 +1,7 @@
+
+![fckinwhaatvevr](https://github.com/user-attachments/assets/c02af2be-eb7d-43e3-8366-1ae202c01656)
+***Woah, it's. fucking birthday. today.***
+
 # ***18+ ONLY!!! MINORS GO AWAY!!!***
 
 ![im not an animating yippeee](https://github.com/user-attachments/assets/234f50d8-d5ca-404a-9d89-ae3f9a051e26)
