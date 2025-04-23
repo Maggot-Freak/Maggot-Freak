@@ -3,6 +3,7 @@
 
 ***It's Wilson P. Higgsburys birthday!  Happy birthday Wilson <3***
 -
+<sub>~~also, i guess it's our birthday too. but we don't celebrate because the day is always terrible. i have yet to be proven wrong.~~</sub>
 
 # ***18+ ONLY!!! MINORS GO AWAY!!!***
 
