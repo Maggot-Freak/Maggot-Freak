@@ -1,6 +1,9 @@
 
 ![fckinwhaatvevr](https://github.com/user-attachments/assets/c02af2be-eb7d-43e3-8366-1ae202c01656)
-***Woah, it's. fucking birthday. today.***
+
+***It's Wilson P. Higgsburys birthday!  Happy birthday Wilson <3***
+-
+~~<sub>it's also our birthday, i guess. but who gives a shit.</sub>~~
 
 # ***18+ ONLY!!! MINORS GO AWAY!!!***
 
