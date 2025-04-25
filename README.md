@@ -16,7 +16,6 @@
 -  ***18+*** to interact on safe server. I hide anyone I find annoying or just generally unpleasant.
 - **Non-Sharing Selfshipper**.
 -  ***Pro-Para***. ***Anti-contact for paras that would cause harm if acted upon / paras that involve anyone who can not or does not consent***. I see you "gross" and "harmful" paras, and I love you <3
--  I hate anti-paras. I don't care if you're proship, if I find out you're anti-para I'm hiding you.
 -  Do not try to involve me in any discourse, I'm just here to chill. Trying to argue with or harass me is a waste of your time because I'm just going to hide you <3
 - ***P.L.U.R***, and I fucking mean it. ***Be nice to people.***
 ## ***[LINK TO SHIP LIST !!! ](https://docs.google.com/document/d/1X8n6leZPZJDl_YBldso4F8hDwOe1K7fx7RgFcWydwVs/edit?usp=sharing)***
