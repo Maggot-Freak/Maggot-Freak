@@ -1,6 +1,6 @@
 
 
-# ***18+ ONLY!!! MINORS GO AWAY!!!***
+# ***18+ !!! I would prefer if minors didn't interact.***
 
 ![im not an animating yippeee](https://github.com/user-attachments/assets/234f50d8-d5ca-404a-9d89-ae3f9a051e26)
 
