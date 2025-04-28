@@ -74,5 +74,6 @@
 ![slyloveseve small](https://github.com/user-attachments/assets/168cae64-6b16-4e30-a348-78dc9c197ed1)
 ![FLIMFLAMSMALLf](https://github.com/user-attachments/assets/072a32cd-971a-4418-9f05-81010ae4e0d8)
 ![CREAMDOOM SMALL](https://github.com/user-attachments/assets/90fd7d29-0d94-4126-94ca-82208682853b)
-![NORMEVE SMALL](https://github.com/user-attachments/assets/27e1f38a-319f-4ca4-ac9c-4b6bb557b971)
+![NORMEVE SMALL](https://github.com/user-attachments/assets/5d7a91d1-4b22-430f-be27-3b452d4bc7a2)
+
 __Extra little note, these are free to use! Anyone can use them for anything they want <3 credit is not needed but I appreciate it if it's possible! :oD (though they're 450x60 rather than the usual blinkie 150x20, sorry about that!)__
