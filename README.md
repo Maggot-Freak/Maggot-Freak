@@ -9,7 +9,8 @@
 ![mellowuserbox3](https://github.com/user-attachments/assets/9062b5f8-8a3b-4827-a5ac-51ce1b2fc21c)
 
 ## **["He hates bigots, he hates busybodies. He hates bullies, he hates little snotties. He hates the common world view, he hates me and he hates you."](https://youtu.be/3Kgxn-mk5ik?si=2pUo23clioBu4-BJ)**
-![slyheartseve](https://github.com/user-attachments/assets/dc84604a-78a1-4a62-8c64-2cc3930f4c77)
+![slyloveseve big](https://github.com/user-attachments/assets/558adb1d-89a9-4ea3-bb31-a2834bd68901)
+
 
 # ***Before you interact / Info***
 
@@ -66,15 +67,11 @@
 ![CREAMDOOM BIG](https://github.com/user-attachments/assets/c3cff65a-5da5-4dc6-b415-be00406ae027)
 [honk](https://www.youtube.com/watch?v=boAxkYmO30c)
 # **Goodbye :o3**
-![easter tweat](https://github.com/user-attachments/assets/e4be9bb5-4a5c-45a8-b6c3-c817d6548032)
 
-
-feeling weird so im gonna ramble here <3
-Chucky is my favourite slasher of all time. Like, he's funny and sadistic and **HE'S SO ADORABLE. HE'S SO CUTE!!! LITTLE GUY!!!** Im love. He would absolutely kill me at the first opportunity because I'm annoying. but it's ok because I love him :o)
 
 
 ![RATCEST SMALL](https://github.com/user-attachments/assets/1675fafc-3732-4497-bc24-2d49767200bb)
-![slyheartsevesmall](https://github.com/user-attachments/assets/13c64dfd-d883-4b4a-96e7-07be421d0021)
+![slyloveseve small](https://github.com/user-attachments/assets/168cae64-6b16-4e30-a348-78dc9c197ed1)
 ![FLIMFLAMSMALLf](https://github.com/user-attachments/assets/072a32cd-971a-4418-9f05-81010ae4e0d8)
 ![CREAMDOOM SMALL](https://github.com/user-attachments/assets/90fd7d29-0d94-4126-94ca-82208682853b)
 ![NORMEVE SMALL](https://github.com/user-attachments/assets/27e1f38a-319f-4ca4-ac9c-4b6bb557b971)
