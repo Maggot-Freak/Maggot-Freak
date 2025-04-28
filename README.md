@@ -9,7 +9,8 @@
 
 
 ## **["He hates bigots, he hates busybodies. He hates bullies, he hates little snotties. He hates the common world view, he hates me and he hates you."](https://youtu.be/3Kgxn-mk5ik?si=2pUo23clioBu4-BJ)**
-![slyloveseve big](https://github.com/user-attachments/assets/816224ac-0bf0-4c6e-b3c6-f51025a07f85)
+![slylovesevenewest big](https://github.com/user-attachments/assets/c7974a16-e23e-414c-ab9c-c6f7f523f678)
+
 
 
 
@@ -72,10 +73,11 @@
 
 
 ![RATCEST SMALL](https://github.com/user-attachments/assets/1675fafc-3732-4497-bc24-2d49767200bb)
-![slyloveseve small](https://github.com/user-attachments/assets/a1790fe8-d123-4a76-91e8-4b69e8e04b76)
+![slylovesevenewest small](https://github.com/user-attachments/assets/c484b588-951d-4826-b28b-a3acdfabdd5c)
 ![FLIMFLAMSMALLf](https://github.com/user-attachments/assets/072a32cd-971a-4418-9f05-81010ae4e0d8)
 ![CREAMDOOM SMALL](https://github.com/user-attachments/assets/90fd7d29-0d94-4126-94ca-82208682853b)
 ![NORMEVE SMALL](https://github.com/user-attachments/assets/5d7a91d1-4b22-430f-be27-3b452d4bc7a2)
+![slyloveseve small](https://github.com/user-attachments/assets/f419ab42-e5cc-4042-aca2-1f510102d5fa)
 
 __Extra little note, these are free to use! Anyone can use them for anything they want <3 credit is not needed but I appreciate it if it's possible! :oD (though they're 450x60 rather than the usual blinkie 150x20, sorry about that!)__
 
