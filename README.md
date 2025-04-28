@@ -9,7 +9,8 @@
 ![mellowuserbox3](https://github.com/user-attachments/assets/9062b5f8-8a3b-4827-a5ac-51ce1b2fc21c)
 
 ## **["He hates bigots, he hates busybodies. He hates bullies, he hates little snotties. He hates the common world view, he hates me and he hates you."](https://youtu.be/3Kgxn-mk5ik?si=2pUo23clioBu4-BJ)**
-![slyloveseve big](https://github.com/user-attachments/assets/558adb1d-89a9-4ea3-bb31-a2834bd68901)
+![slyloveseve big](https://github.com/user-attachments/assets/816224ac-0bf0-4c6e-b3c6-f51025a07f85)
+
 
 
 # ***Before you interact / Info***
@@ -71,7 +72,7 @@
 
 
 ![RATCEST SMALL](https://github.com/user-attachments/assets/1675fafc-3732-4497-bc24-2d49767200bb)
-![slyloveseve small](https://github.com/user-attachments/assets/168cae64-6b16-4e30-a348-78dc9c197ed1)
+![slyloveseve small](https://github.com/user-attachments/assets/a1790fe8-d123-4a76-91e8-4b69e8e04b76)
 ![FLIMFLAMSMALLf](https://github.com/user-attachments/assets/072a32cd-971a-4418-9f05-81010ae4e0d8)
 ![CREAMDOOM SMALL](https://github.com/user-attachments/assets/90fd7d29-0d94-4126-94ca-82208682853b)
 ![NORMEVE SMALL](https://github.com/user-attachments/assets/5d7a91d1-4b22-430f-be27-3b452d4bc7a2)
