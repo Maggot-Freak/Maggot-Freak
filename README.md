@@ -48,7 +48,9 @@
 - Terraria
 - Starbound ~~sorry~~
 
-![RATCEST BIG](https://github.com/user-attachments/assets/d2fae74d-6d03-44db-bff8-660ad46a327c)
+
+![RATCEST SMALL](https://github.com/user-attachments/assets/98935cd4-ed8a-49e3-9589-28494a966ad5)
+
 
 
 # ***MUSIC I LIEK :o3c*** (most significant interests in bold)
@@ -76,7 +78,7 @@
 ![FLIMFLAMSMALLf](https://github.com/user-attachments/assets/072a32cd-971a-4418-9f05-81010ae4e0d8)
 ![NORMEVE SMALL](https://github.com/user-attachments/assets/ebb43465-218a-4cf7-8e9b-a6aafa9c17e4)
 ![SLARCO SMALL](https://github.com/user-attachments/assets/aec6da22-204d-4d08-a32d-a3cf0e9b7117)
-
+![RATCEST SMALL](https://github.com/user-attachments/assets/16e77cfa-73b9-4547-a4f4-5eee7e42a6b3)
 
 __Extra little note, these are free to use! Anyone can use them for anything they want <3 credit is not needed but I appreciate it if it's possible! :oD (though they're 450x60 rather than the usual blinkie 150x20, sorry about that!)__
 
