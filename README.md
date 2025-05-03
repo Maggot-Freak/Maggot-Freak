@@ -9,7 +9,8 @@
 
 
 ## **["He hates bigots, he hates busybodies. He hates bullies, he hates little snotties. He hates the common world view, he hates me and he hates you."](https://youtu.be/3Kgxn-mk5ik?si=2pUo23clioBu4-BJ)**
-![slylovesevenewest big](https://github.com/user-attachments/assets/c7974a16-e23e-414c-ab9c-c6f7f523f678)
+![SLYLOVESEVE4VR BIG](https://github.com/user-attachments/assets/4f11808f-0d1e-417c-bd6e-d654cc3bee4d)
+
 
 
 
@@ -74,7 +75,7 @@
 
 
 
-
+![SLYLOVESEVE4VR SMALL](https://github.com/user-attachments/assets/2f49c56b-9d6a-415f-9c94-aad754e1b634)
 ![FLIMFLAMSMALLf](https://github.com/user-attachments/assets/072a32cd-971a-4418-9f05-81010ae4e0d8)
 ![NORMEVE SMALL](https://github.com/user-attachments/assets/ebb43465-218a-4cf7-8e9b-a6aafa9c17e4)
 ![SLARCO SMALL](https://github.com/user-attachments/assets/aec6da22-204d-4d08-a32d-a3cf0e9b7117)
