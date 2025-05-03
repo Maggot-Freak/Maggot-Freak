@@ -69,7 +69,7 @@
 - Stomach Book
   
 ![MAGGOT GROOVE](https://github.com/user-attachments/assets/4c18ea2f-c801-495e-88e3-51b1f3f1c12d)
-![CREAMDOOM BIG](https://github.com/user-attachments/assets/c3cff65a-5da5-4dc6-b415-be00406ae027)
+![DREAM BIG](https://github.com/user-attachments/assets/b66a2bdf-c18a-4984-bfd3-edb9a0ccdf3a)
 [honk](https://www.youtube.com/watch?v=boAxkYmO30c)
 # **Goodbye :o3**
 
@@ -80,6 +80,9 @@
 ![NORMEVE SMALL](https://github.com/user-attachments/assets/ebb43465-218a-4cf7-8e9b-a6aafa9c17e4)
 ![SLARCO SMALL](https://github.com/user-attachments/assets/aec6da22-204d-4d08-a32d-a3cf0e9b7117)
 ![RATCEST SMALL](https://github.com/user-attachments/assets/16e77cfa-73b9-4547-a4f4-5eee7e42a6b3)
+![DREAM SMALL](https://github.com/user-attachments/assets/ea7f40d3-1aa9-4652-9eda-d10384c45492)
+
+
 
 __Extra little note, these are free to use! Anyone can use them for anything they want <3 credit is not needed but I appreciate it if it's possible! :oD (though they're 450x60 rather than the usual blinkie 150x20, sorry about that!)__
 
