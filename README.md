@@ -72,12 +72,11 @@
 
 
 
-![RATCEST SMALL](https://github.com/user-attachments/assets/1675fafc-3732-4497-bc24-2d49767200bb)
-![slylovesevenewest small](https://github.com/user-attachments/assets/c484b588-951d-4826-b28b-a3acdfabdd5c)
+
 ![FLIMFLAMSMALLf](https://github.com/user-attachments/assets/072a32cd-971a-4418-9f05-81010ae4e0d8)
-![CREAMDOOM SMALL](https://github.com/user-attachments/assets/90fd7d29-0d94-4126-94ca-82208682853b)
-![NORMEVE SMALL](https://github.com/user-attachments/assets/5d7a91d1-4b22-430f-be27-3b452d4bc7a2)
-![slyloveseve small](https://github.com/user-attachments/assets/f419ab42-e5cc-4042-aca2-1f510102d5fa)
+![NORMEVE SMALL](https://github.com/user-attachments/assets/ebb43465-218a-4cf7-8e9b-a6aafa9c17e4)
+![SLARCO SMALL](https://github.com/user-attachments/assets/aec6da22-204d-4d08-a32d-a3cf0e9b7117)
+
 
 __Extra little note, these are free to use! Anyone can use them for anything they want <3 credit is not needed but I appreciate it if it's possible! :oD (though they're 450x60 rather than the usual blinkie 150x20, sorry about that!)__
 
