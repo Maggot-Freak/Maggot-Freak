@@ -87,3 +87,4 @@
 __Extra little note, these are free to use! Anyone can use them for anything they want <3 credit is not needed but I appreciate it if it's possible! :oD (though they're 450x60 rather than the usual blinkie 150x20, sorry about that!)__
 
 ![mellowuserbox3](https://github.com/user-attachments/assets/9062b5f8-8a3b-4827-a5ac-51ce1b2fc21c)
+![kevinuserbox](https://github.com/user-attachments/assets/9b2c5d02-4601-42dd-b1d1-840848b4c902)
