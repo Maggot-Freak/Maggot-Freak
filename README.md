@@ -88,3 +88,7 @@ __Extra little note, these are free to use! Anyone can use them for anything the
 
 ![mellowuserbox3](https://github.com/user-attachments/assets/9062b5f8-8a3b-4827-a5ac-51ce1b2fc21c)
 ![kevinuserbox](https://github.com/user-attachments/assets/9b2c5d02-4601-42dd-b1d1-840848b4c902)
+![stygianuserbox](https://github.com/user-attachments/assets/b47d045a-1f58-43b2-a6d1-d5c9e26e3f4b)
+
+
+
