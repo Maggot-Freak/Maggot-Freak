@@ -24,7 +24,7 @@
 -  ***Pro-Para***. ***Anti-contact for paras that would cause harm if acted upon / paras that involve anyone who can not or does not consent***. I see you "gross" and "harmful" paras, and I love you <3
 -  Do not try to involve me in any discourse, I'm just here to chill. Trying to argue with or harass me is a waste of your time because I'm just going to hide you <3
 - ***P.L.U.R***, and I fucking mean it. ***Be nice to people.***
-- Making a pony ~~(or flag)~~ to openly declare to others that you're "anti" something is so lame... Focus on the things you love, dude.
+
 ## ***[LINK TO SHIP LIST !!! ](https://docs.google.com/document/d/1X8n6leZPZJDl_YBldso4F8hDwOe1K7fx7RgFcWydwVs/edit?usp=sharing)***
 
 ![FLIMFLAMBIGf](https://github.com/user-attachments/assets/fa4962b5-0b3c-4bd1-ad0d-a3e2f6f918f2)
