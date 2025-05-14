@@ -1,17 +1,15 @@
 
 
-# ***18+ !!! I would prefer if minors didn't interact.***
+![stygianuserbox](https://github.com/user-attachments/assets/b47d045a-1f58-43b2-a6d1-d5c9e26e3f4b)
+
+# ***18+ !!! MINORS DO NOT INTERACT!!! ... please :oV***
 
 ![im not an animating yippeee](https://github.com/user-attachments/assets/234f50d8-d5ca-404a-9d89-ae3f9a051e26)
-
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qj6vpecq74hhdjiwzxlts7ma7q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=440a7f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
-## **["He hates bigots, he hates busybodies. He hates bullies, he hates little snotties. He hates the common world view, he hates me and he hates you."](https://youtu.be/3Kgxn-mk5ik?si=2pUo23clioBu4-BJ)**
 ![SLYLOVESEVE4VR BIG](https://github.com/user-attachments/assets/4f11808f-0d1e-417c-bd6e-d654cc3bee4d)
-
-
 
 
 
@@ -68,11 +66,10 @@
 - Stomach Book
   
 ![MAGGOT GROOVE](https://github.com/user-attachments/assets/4c18ea2f-c801-495e-88e3-51b1f3f1c12d)
-![DREAM BIG](https://github.com/user-attachments/assets/b66a2bdf-c18a-4984-bfd3-edb9a0ccdf3a)
-[honk](https://www.youtube.com/watch?v=boAxkYmO30c)
-# **Goodbye :o3**
 
 
+
+# **FREAKYCARE BLINKIES, FOR ALL UR FREAKYCARE NEEDS!!!**
 
 ![SLYLOVESEVE4VR SMALL](https://github.com/user-attachments/assets/2f49c56b-9d6a-415f-9c94-aad754e1b634)
 ![FLIMFLAMSMALLf](https://github.com/user-attachments/assets/072a32cd-971a-4418-9f05-81010ae4e0d8)
@@ -82,14 +79,13 @@
 ![DREAM SMALL](https://github.com/user-attachments/assets/ea7f40d3-1aa9-4652-9eda-d10384c45492)
 
 
+__Extra little note, these blinkies are free to use! Anyone can use them for anything they want <3 credit is not needed but I appreciate it if it's possible! :oD (though they're 450x60 rather than the usual blinkie 150x20, sorry about that!)__
 
-__Extra little note, these are free to use! Anyone can use them for anything they want <3 credit is not needed but I appreciate it if it's possible! :oD (though they're 450x60 rather than the usual blinkie 150x20, sorry about that!)__
+# **Goodbye :o3**
 
-![mellowuserbox3](https://github.com/user-attachments/assets/9062b5f8-8a3b-4827-a5ac-51ce1b2fc21c)
+![colts will be bugs](https://github.com/user-attachments/assets/670aa4ac-8fd7-45a2-a440-3bbfb66387b2)
 ![kevinuserbox](https://github.com/user-attachments/assets/9b2c5d02-4601-42dd-b1d1-840848b4c902)
-![stygianuserbox](https://github.com/user-attachments/assets/b47d045a-1f58-43b2-a6d1-d5c9e26e3f4b)
 ![chuckyuserbox](https://github.com/user-attachments/assets/f011533e-7bee-4c64-98ef-6e58a142766d)
-
-
-**userboxes for my main f/os! I am uncomfortable with sharing any of them.**
-
+![mellowuserbox3](https://github.com/user-attachments/assets/9062b5f8-8a3b-4827-a5ac-51ce1b2fc21c)
+## ....
+[honk](https://www.youtube.com/watch?v=boAxkYmO30c)
