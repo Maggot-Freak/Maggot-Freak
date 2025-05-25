@@ -11,10 +11,9 @@
 
 # ***Before you interact / Info***
 
-## ***[LINK TO F/O LIST !!!](https://docs.google.com/document/d/1z87dd5EAqhLX5DDW1LxPfYMSmuht_S1sNXZHvsuu6Oc/edit?usp=sharing)***
 -  ***❗❗❗Very unlikely to actually respond. I have VERY bad (social) anxiety. Talking to people is often impossible for me. Please don't take it personally.❗❗❗***
 - **Non-Sharing Selfshipper**.
-- 
+- please don't try to involve me in any form of discourse, I'm too tired for any of this stuff.
 
 # ***INTERESTS / FANDOMS*** (most significant interests in bold)
 - ***MLP***
