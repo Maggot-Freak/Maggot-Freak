@@ -13,9 +13,8 @@
 
 -  ***❗❗❗Very unlikely to actually respond. I have VERY bad (social) anxiety. Talking to people is often impossible for me. Please don't take it personally.❗❗❗***
 - **Non-Sharing Selfshipper**. Weh.
-- I hate most people on here. So many of you are AWFUL... it's so FUCKING easy to be nice!!! 
-- Don't try to involve me in any form of discourse, I'm too tired for any of this shit.
-- Don't waste time on things you hate, it's pathetic. Get a hobby. 
+- Don't try to involve me in any form of discourse, I'm too tired for any of this stuff.
+- uuuhhhh
 
 # ***INTERESTS / FANDOMS*** (most significant interests in bold)
 - ***MLP***
