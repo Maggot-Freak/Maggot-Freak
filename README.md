@@ -2,7 +2,7 @@
 
 ![stygianuserbox](https://github.com/user-attachments/assets/b47d045a-1f58-43b2-a6d1-d5c9e26e3f4b)
 
-# ***18+ !!! MINORS DO NOT INTERACT!!! ... please :oV***
+# ***18+ !!! If you're under 18, I'm not listening to a single thing you have to say ;o)***
 
 ![im not an animating yippeee](https://github.com/user-attachments/assets/234f50d8-d5ca-404a-9d89-ae3f9a051e26)
 
@@ -12,8 +12,10 @@
 # ***Before you interact / Info***
 
 -  ***❗❗❗Very unlikely to actually respond. I have VERY bad (social) anxiety. Talking to people is often impossible for me. Please don't take it personally.❗❗❗***
-- **Non-Sharing Selfshipper**.
-- please don't try to involve me in any form of discourse, I'm too tired for any of this stuff.
+- **Non-Sharing Selfshipper**. Weh.
+- I hate most people on here. So many of you are AWFUL... it's so FUCKING easy to be nice!!! 
+- Don't try to involve me in any form of discourse, I'm too tired for any of this shit.
+- Don't waste time on things you hate, it's pathetic. Get a hobby. 
 
 # ***INTERESTS / FANDOMS*** (most significant interests in bold)
 - ***MLP***
