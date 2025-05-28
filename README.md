@@ -1,5 +1,4 @@
 
-
 ![stygianuserbox](https://github.com/user-attachments/assets/b47d045a-1f58-43b2-a6d1-d5c9e26e3f4b)
 
 # ***18+ !!! Minors go away.***
@@ -12,6 +11,7 @@
 # ***Before you interact / Info***
 
 -  ***❗❗❗Very unlikely to actually respond. I have VERY bad (social) anxiety. Talking to people is often impossible for me. Please don't take it personally.❗❗❗***
+-  ***#1 STYGIAN APOLOGIST !!!***
 - **Non-Sharing Selfshipper**. Weh.
 - Don't try to involve me in any form of discourse, I'm too tired for any of this stuff.
 - uuuhhhh
