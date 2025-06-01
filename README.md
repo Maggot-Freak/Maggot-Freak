@@ -1,6 +1,9 @@
 # ***FUCK YOUR QUEER DISCOURSE!!!***
-# ***LESBOYS ARE VALID. MSPEC GAYS ARE VALID. NEOPRONOUNS ARE VALID. XENOGENDERS ARE VALID.***
-# ***Be nice to eachother forever.***
+ ***Lesboys are cool. Mspec gays are cool. I use neopronouns. I love xenogenders.***
+ 
+ ***I have no tolerance for queer infighting. Grow the fuck up.***
+ 
+***Be nice to eachother forever.***
 ![stygianuserbox](https://github.com/user-attachments/assets/b47d045a-1f58-43b2-a6d1-d5c9e26e3f4b)
 
 # ***18+ !!! Minors go away.***
