@@ -2,12 +2,7 @@
 -
 -
 -
-# ***FUCK YOUR QUEER DISCOURSE!!!***
- ***Lesboys are cool. Mspec gays are cool. I use neopronouns. I love xenogenders.***
- 
- ***I have no tolerance for queer infighting. Grow the fuck up.***
- 
-***Be nice to eachother forever.***
+
 ![stygianuserbox](https://github.com/user-attachments/assets/b47d045a-1f58-43b2-a6d1-d5c9e26e3f4b)
 
 ![im not an animating yippeee](https://github.com/user-attachments/assets/234f50d8-d5ca-404a-9d89-ae3f9a051e26)
