@@ -4,6 +4,8 @@
 -
 
 ![stygianuserbox](https://github.com/user-attachments/assets/b47d045a-1f58-43b2-a6d1-d5c9e26e3f4b)
+![king erik](https://github.com/user-attachments/assets/2e453e5b-6aee-4abc-8e3f-cb661a42aba2)
+
 
 ![im not an animating yippeee](https://github.com/user-attachments/assets/234f50d8-d5ca-404a-9d89-ae3f9a051e26)
 
@@ -45,3 +47,6 @@
 ![mellowuserbox3](https://github.com/user-attachments/assets/9062b5f8-8a3b-4827-a5ac-51ce1b2fc21c)
 ## ....
 [honk](https://www.youtube.com/watch?v=boAxkYmO30c)
+
+![WITTLE-FUCKING-GUYYY](https://github.com/user-attachments/assets/97c14b4b-8b2f-429e-9a7a-800d3d896427)
+
