@@ -39,7 +39,7 @@
 
 # **Goodbye :o3**
 
-![colts will be bugs](https://github.com/user-attachments/assets/670aa4ac-8fd7-45a2-a440-3bbfb66387b2)
+
 ![kevinuserbox](https://github.com/user-attachments/assets/9b2c5d02-4601-42dd-b1d1-840848b4c902)
 ![chuckyuserbox](https://github.com/user-attachments/assets/f011533e-7bee-4c64-98ef-6e58a142766d)
 ![king erik](https://github.com/user-attachments/assets/2e453e5b-6aee-4abc-8e3f-cb661a42aba2)
