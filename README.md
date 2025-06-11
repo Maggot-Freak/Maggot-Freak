@@ -13,10 +13,9 @@
 # ***Before you interact / Info***
 
 -  ***❗❗❗Very unlikely to actually respond. I have VERY bad (social) anxiety. Talking to people is often impossible for me. Please don't take it personally.❗❗❗***
--  ***#1 STYGIAN APOLOGIST !!!***
-- **Non-Sharing Selfshipper**. Weh.
+-  ***#1 STYGIAN APOLOGIST !!!*** Stygian did nothing wrong. Mirrorverse!Stygian did nothing wrong. I love every Stygian and I will ALWAYS defend him <3
+- **Non-Sharing Selfshipper**. I have userboxes for my main f/os at the bottom of the page. 
 - Don't try to involve me in any form of discourse, I'm too tired for any of this stuff.
-- uuuhhhh
 
 # ***INTERESTS / FANDOMS*** (most significant interests in bold)
 - ***MLP***
