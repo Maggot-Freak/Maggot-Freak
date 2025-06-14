@@ -44,7 +44,7 @@
 ![chuckyuserbox](https://github.com/user-attachments/assets/f011533e-7bee-4c64-98ef-6e58a142766d)
 ![king erik](https://github.com/user-attachments/assets/2e453e5b-6aee-4abc-8e3f-cb661a42aba2)
 ![mellowuserbox3](https://github.com/user-attachments/assets/9062b5f8-8a3b-4827-a5ac-51ce1b2fc21c)
-Mellow is not a romantic f/o. not all f/os are romantic. I'm his guardin angel!!!! ok.
+Mellow is **not** a romantic f/o. **not all f/os are romantic**. I'm his guardian angel!!!! ok.
 ## ....
 [honk](https://www.youtube.com/watch?v=boAxkYmO30c)
 
