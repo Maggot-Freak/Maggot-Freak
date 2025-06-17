@@ -38,6 +38,7 @@
 ![MAGGOT GROOVE](https://github.com/user-attachments/assets/4c18ea2f-c801-495e-88e3-51b1f3f1c12d)
 
 # **Goodbye :o3**
+![smoochie](https://github.com/user-attachments/assets/87119511-30f6-47b2-8c26-ecc2a5264878)
 
 
 ![kevinuserbox](https://github.com/user-attachments/assets/9b2c5d02-4601-42dd-b1d1-840848b4c902)
